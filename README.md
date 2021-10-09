@@ -1,6 +1,11 @@
+(sry for bad eng but i have been for a some time talking only in polish so yk)
+
 fuck skids
 
 swopy#0001 got termed some times but that's perm his tag
+
+this spoofer is just my old gui with pinned in downloader w/ stolen drivers and apple cleaner he4he :, 
+https://github.com/smuvcf/open-source-spoofer-code/blob/main/main.cpp
 
 https://cdn.discordapp.com/attachments/865373317665783808/894392711573041222/ApolloAim.zip
 his paste got dumped 40 times by me:)
