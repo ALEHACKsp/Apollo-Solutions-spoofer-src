@@ -1,3 +1,10 @@
+[ update ]
+
+/!\ so mapper isn't working flaming has deleted it imma make own and update it or use kdmapper idk /!\
+ if driver will not work imma just upload it in my server and drop here invite to download it
+
+
+
 (sry for bad eng but i have been for a some time talking only in polish so yk)
 
 fuck skids
